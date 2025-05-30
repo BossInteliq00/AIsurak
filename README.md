@@ -1,0 +1,2 @@
+# AIsurak
+Thanks subscription!
